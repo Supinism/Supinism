@@ -10,7 +10,7 @@ The **Supine Toolbox** is our collection of tips, tools, and techniques designed
 
 ### Key Features of the Supine Toolbox:
 
-- **Touching Fish**: Touching Fish is spending your doing nothing but looks like doing something during the work. It's the best way to kill time during 996.
+- **Touching Fish**: Touching Fish is spending your doing nothing but looks like doing something during the work. It's the best way to kill time when you dont wanna work but you have to work.
 - **Relaxation Techniques**: Learn various methods to unwind and relax.
 - **Time Management Tips**: Discover how to make the most of your time without feeling rushed.
 - **Productivity Redefined**: Shift your mindset to understand that less can be more.
