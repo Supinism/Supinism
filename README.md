@@ -10,19 +10,19 @@ The **Supine Toolbox** is our collection of tips, tools, and techniques designed
 
 ### Key Features of the Supine Toolbox:
 
+- **Touching Fish**: Touching Fish is spending your doing nothing but looks like doing something during the work. It's the best way to kill time when you dont wanna work but you have to work.
 - **Relaxation Techniques**: Learn various methods to unwind and relax.
 - **Time Management Tips**: Discover how to make the most of your time without feeling rushed.
-- **Mindfulness Practices**: Embrace the present moment and find joy in the little things.
 - **Productivity Redefined**: Shift your mindset to understand that less can be more.
-- **Community Support**: Connect with like-minded individuals who value a relaxed lifestyle.
+- **Community Support**: Connect with like-minded individuals who value a relaxed lifestyle and learn Touching Fish skills from Masters in our community.
 
 ## Our Mission 🌍
 
-At the Supinism Movement, our mission is to redefine productivity and success through the lens of relaxation and balance. We aim to build a community that values the importance of rest, leisure, and overall well-being. 🌴🕰️
+At the Supinism Movement, our mission is to spread the idea of Touching Fish and redefine productivity and success through the lens of relaxation and balance. We aim to build a community that values the importance of rest, leisure, and overall well-being. 🌴🕰️
 
 ## Join Us! 🙌
 
-Become a part of the Supinism Movement and start your journey towards a more relaxed, fulfilling life. Follow us, share your experiences, and let's celebrate the joy of being supine together! 🌟
+Become a part of the Supinism Movement and start your journey towards a more relaxed, fulfilling life. Follow us, share your experiences and skill in Touching Fish, and let's celebrate the joy of being supine together! 🌟
 
 ### Contribution 🤝
 
